@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI principals
 - 💞️ I’m looking to collaborate with something, maybe in a few months.
 - 📫 How to reach me: https://x.com/_reguluz
-- 😄 Pronouns: he/his
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: carioca 
 
 <!---
